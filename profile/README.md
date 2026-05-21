@@ -1,4 +1,7 @@
-### Hi Welcome 🙌
+GLITCH X ABOOSE
+
+We're cooking something absolutely unhinged.
+Stay tuned or get left behind.
 
 
 ### GitHub Stats
